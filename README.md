@@ -1,4 +1,4 @@
-# 星野源 Gen Hoshino – Mad Hope
+# 星野源 Gen Hoshino – Mad Hope（feat. ルイス・コール、サム・ゲンデル、サム・ウィルクス）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
